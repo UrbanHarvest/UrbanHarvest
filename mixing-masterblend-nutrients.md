@@ -36,4 +36,4 @@ We are using "MASTERBLEND 4-18-38"
 
 ## Tips
 
-If you container is too full to stir or pour, you can gently lower a gallon milk bottle into the water to take some off the top. Then you can continue stirring or pouring, then add the water back togeher as needed.
+If you container is too full to stir or pour, you can gently lower a gallon milk bottle into the water to take some off the top. Then you can continue stirring or pouring, then add the water back together as needed.
